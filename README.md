@@ -1,4 +1,4 @@
-# 🌍 Vunda Resource – Ecossistema Digital Colaborativo
+# 🌍 Vunda Resources – Ecossistema Digital Colaborativo
 
 ## 🧠 Visão Geral
 
